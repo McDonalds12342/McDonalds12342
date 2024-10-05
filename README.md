@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @McDonalds12342
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning cc+ code
